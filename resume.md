@@ -1,7 +1,7 @@
 # Ardellia Putri Pertiwi
 
 📍 South Jakarta, Indonesia  
-📧 ardelliappw@gmail.com | 📱 +62 813 9160 8089  | [LinkedIn](https://www.linkedin.com/in/ardellia-putri-38a34515b)
+📧 ardelliappw@gmail.com | 📱 +62 813 9160 8089  | [LinkedIn](https://www.linkedin.com/in/ardellia-putri-pertiwi-38a34515b/)
 
 ---
 
